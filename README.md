@@ -12,7 +12,7 @@ Este projeto faz parte da disciplina de projeto integrado 2, onde estamos aborda
 
 ## DADOS PESSOAIS
 
-nome: Oliver Bryan Cavalcante Guilherme, possuo 17 anos, com o gmail de oliveebryan@gmail.com.
+nome: Oliver Bryan Cavalcante Guilherme, tenho 17 anos, com o gmail de oliveebryan@gmail.com.
 
 ## FORMAÇÃO ACADÊMICA
 Sou formando do curso tecninco de nivel medio em informatica, pelo instituto federal de ciências e tecnologia do Amazonas.
