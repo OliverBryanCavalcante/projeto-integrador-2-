@@ -8,7 +8,7 @@ Este projeto faz parte da disciplina de projeto integrado 2, onde estamos aborda
 
 [Currículo Lattes](" http://lattes.cnpq.br/2143171031113767")
 
-[Perfil no Linkedin]("https://www.linkedin.com/feed/")
+("https://www.linkedin.com/feed/")
 
 ## DADOS PESSOAIS
 
