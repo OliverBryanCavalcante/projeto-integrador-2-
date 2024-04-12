@@ -20,7 +20,7 @@ Sou formando do curso tecninco de nivel medio em informatica, pelo instituto fed
 ## FORMAÇÃO COMPLEMENTAR
 
 
-1. Descrição da atividade conforme certificado
+ Descrição da atividade conforme certificado
 Carga horária:
 
 1.Fui monitor da disciplina de artes no ano de 2022 com totalidade de 60h, como também ainda sou bolsista junior de projetos de extensão nos anos de 2023 e 2024 ofertado pelo Instituto Federal do Amazonas.
