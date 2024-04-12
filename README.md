@@ -23,7 +23,7 @@ Sou formando do curso tecninco de nivel medio em informatica, pelo instituto fed
 1. Descrição da atividade conforme certificado
 Carga horária:
 
-Fui monitor da disciplina de artes no ano de 2022 com totalidade de 60h, como também ainda sou bolsista junior de projetos de extensão nos anos de 2023 e 2024 ofertado pelo Instituto Federal do Amazonas. 
+Fui monitor da disciplina de artes no ano de 2022 com totalidade de 60h, como também ainda sou bolsista junior de projetos de extensão nos anos de 2023 e 2024 ofertado pelo Instituto Federal do Amazonas\. 
 Participei do projeto de ensino intitulado “clube de libras”,\
 cordenado pela servidora Sara Dos Santos Medrado, siape\
 1882704, no periodo de Junho a Dezembro DE 2022, realizado no\
