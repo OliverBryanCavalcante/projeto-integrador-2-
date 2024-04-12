@@ -18,7 +18,7 @@ nome: Oliver Bryan Cavalcante Guilherme, possuo 17 anos, com o gmail de oliveebr
 Sou formando do curso tecninco de nivel medio em informatica, pelo instituto federal de ciências e tecnologia do Amazonas.
 
 ## FORMAÇÃO COMPLEMENTAR
-fui monitor da disciplina de artes no ano de 2022 com totalidade de 60h, como também   sou bolsista junior de projetos de extensão nos anos de 2023 e 2024 ofertado pelo campus.
+fui monitor da disciplina de artes no ano de 2022 com totalidade de 60h, como também ainda sou bolsista junior de projetos de extensão nos anos de 2023 e 2024 ofertado pelo campus.
 
 1. Descrição da atividade conforme certificado
 Carga horária:
