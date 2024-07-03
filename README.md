@@ -6,9 +6,9 @@ Este projeto faz parte da disciplina de projeto integrado 2, onde estamos aborda
 
 # CÚRRICULO BÁSICO
 
-[Currículo Lattes](" http://lattes.cnpq.br/2143171031113767")
+[Currículo Lattes]( http://lattes.cnpq.br/2143171031113767)
 
- [Curículo likerdinl] ("www.linkedin.com/in/oliver-bryan-a74ab4300")
+ [Curículo likerdinl] (www.linkedin.com/in/oliver-bryan-a74ab4300)
 
 ## DADOS PESSOAIS
 
