@@ -36,7 +36,7 @@ Instituto federal do Amazonas-CAMPUS EIRUNEPÉ, com a Carga de Horáraria De 60H
 6. Participei da Palestra intitulada " Metaverso: uma imersão educacional" mininistrado pelo servidor Isac Neto da Silva,com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
 7. Participei DA PALESTRA INTITULADA “PREVENÇÃO DA GRAVIDEZ NA ADOLESCÊNCIA”, MINISTRADO
 PELO SETOR DE SAÚDE DA UBS GEZITA COM APOIO DO SETOR DE SAÚDE DO CAMPUS, REALIZADO NO
-INSTITUTO FEDERAL DO AMAZONAS - CAMPUS EIRUNEPÉ, NO MÊS DE MARÇO DE 2023, COM CARGA. [comprovação pdf](https://github.com/OliverBryanCavalcante/projeto-integrador-2-/blob/main/OLIVER%20BRYAN.pdf)
+INSTITUTO FEDERAL DO AMAZONAS - CAMPUS EIRUNEPÉ, NO MÊS DE MARÇO DE 2023, COM CARGA. Aqui está a comprovação do arquivo [comprovação pdf](https://github.com/OliverBryanCavalcante/projeto-integrador-2-/blob/main/OLIVER%20BRYAN.pdf)
 
 
  
