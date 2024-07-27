@@ -29,12 +29,13 @@ Carga horária:
 cordenado pela servidora Sara Dos Santos Medrado, siape\
 1882704, no periodo de Junho a Dezembro DE 2022, realizado no\
 Instituto federal do Amazonas-CAMPUS EIRUNEPÉ, com a  Carga\
+Aqui está a comprovação do arquivo o [domcumento pdf](Oliver)
 Horáraria De 60H.
-3. Participei da Palestra e filme intitulado "O homen bicentenario", cordenado pelo servidor Manoel Rodrigues da Silva SIAPE 1134263, com carga horaria de 3h, na semana de pesquisa e extensão do Instituto Federal do Amazonas no ano de 2022.
-4. Participei das Apresentações intituladas "PIBIC 2021/2022 e Pibex 2021", cordenado pelos Cordenadores de Pesquisa e Extensão, com carga horaria de 4h, realizado pelo instituto federal do Amazonas no ano de 2022.
-5. Participei da oficia de "Como elaborar apresentações dinâmicas com o PowePoint" ministrada pela servidora Maria Lucilene Menezes Umbelino, com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
-6. Participei da oficia "O mundo microscópio: manuseio e preparação de lâminas para estudo das células" ministrada pela servidora Thaíz muniz de Queiroz, com carga horaria de 2h, reaizado pelo instituto federal do Amazonas no ano de 2022
-7. Participei da Palestra intitulada " Metaverso: uma imersão educacional" mininistrado pelo servidor Isac Neto da Silva,com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
+4. Participei da Palestra e filme intitulado "O homen bicentenario", cordenado pelo servidor Manoel Rodrigues da Silva SIAPE 1134263, com carga horaria de 3h, na semana de pesquisa e extensão do Instituto Federal do Amazonas no ano de 2022.
+5. Participei das Apresentações intituladas "PIBIC 2021/2022 e Pibex 2021", cordenado pelos Cordenadores de Pesquisa e Extensão, com carga horaria de 4h, realizado pelo instituto federal do Amazonas no ano de 2022.
+6. Participei da oficia de "Como elaborar apresentações dinâmicas com o PowePoint" ministrada pela servidora Maria Lucilene Menezes Umbelino, com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
+7. Participei da oficia "O mundo microscópio: manuseio e preparação de lâminas para estudo das células" ministrada pela servidora Thaíz muniz de Queiroz, com carga horaria de 2h, reaizado pelo instituto federal do Amazonas no ano de 2022
+8. Participei da Palestra intitulada " Metaverso: uma imersão educacional" mininistrado pelo servidor Isac Neto da Silva,com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
 
 
  
