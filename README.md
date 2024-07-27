@@ -34,6 +34,9 @@ Instituto federal do Amazonas-CAMPUS EIRUNEPÉ, com a Carga de Horáraria De 60H
 4. Participei da oficia de "Como elaborar apresentações dinâmicas com o PowePoint" ministrada pela servidora Maria Lucilene Menezes Umbelino, com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
 5. Participei da oficia "O mundo microscópio: manuseio e preparação de lâminas para estudo das células" ministrada pela servidora Thaíz muniz de Queiroz, com carga horaria de 2h, reaizado pelo instituto federal do Amazonas no ano de 2022
 6. Participei da Palestra intitulada " Metaverso: uma imersão educacional" mininistrado pelo servidor Isac Neto da Silva,com carga horaria de 2h, realizado pelo instituto federal do Amazonas no ano de 2022.
+7. Participei DA PALESTRA INTITULADA “PREVENÇÃO DA GRAVIDEZ NA ADOLESCÊNCIA”, MINISTRADO
+PELO SETOR DE SAÚDE DA UBS GEZITA COM APOIO DO SETOR DE SAÚDE DO CAMPUS, REALIZADO NO
+INSTITUTO FEDERAL DO AMAZONAS - CAMPUS EIRUNEPÉ, NO MÊS DE MARÇO DE 2023, COM CARGA
 
 
  
