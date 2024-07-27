@@ -30,7 +30,7 @@ cordenado pela servidora Sara Dos Santos Medrado, siape\
 1882704, no periodo de Junho a Dezembro DE 2022, realizado no\
 Instituto federal do Amazonas-CAMPUS EIRUNEPÉ, com a Carga de Horáraria De 60H.\
 
-Aqui está a comprovação do arquivo o [exemplar pdf](https://github.com/OliverBryanCavalcante/projeto-integrador-2-/blob/main/OLIVER.pdf)
+ Aqui está a comprovação do arquivo o [exemplar pdf](https://github.com/OliverBryanCavalcante/projeto-integrador-2-/blob/main/OLIVER.pdf)
 
 4. Participei da Palestra e filme intitulado "O homen bicentenario", cordenado pelo servidor Manoel Rodrigues da Silva SIAPE 1134263, com carga horaria de 3h, na semana de pesquisa e extensão do Instituto Federal do Amazonas no ano de 2022.
 5. Participei das Apresentações intituladas "PIBIC 2021/2022 e Pibex 2021", cordenado pelos Cordenadores de Pesquisa e Extensão, com carga horaria de 4h, realizado pelo instituto federal do Amazonas no ano de 2022.
